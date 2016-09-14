@@ -24,11 +24,11 @@
    * are there ways people can have an ebb-and-flow of effort to avoid burnout?
    * how to get the most efficient use of people's time and focus?
    * have different levels of engagement
-   * develp new generations of leaders for long-term campaigns
+   * develop new generations of leaders for long-term campaigns
   
-* Develop support sytems for people leading the campaign
+* Develop support systems for people leading the campaign
    * the weight of the campaign can be large; and you may hear a lot more problems
-   * are the leaders staying open to new ideas, and increasing effecitiveness? 
+   * are the leaders staying open to new ideas, and increasing effectiveness? 
 
 * List the potential tactics 
 
